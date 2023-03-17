@@ -1,4 +1,8 @@
-# Formação
+# Currículo
+
+---
+
+## Formação
 
 ---
 
